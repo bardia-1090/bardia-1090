@@ -5,6 +5,6 @@
 - 📫 How to reach me ...
 
 <!---
-bardia-1090/bardia-1090 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+bardia-1090/bardia-1090 is a ✨ special ✨ repository By Salam Makhzon and all mobile services and iPhone network register (14)$(15)because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 ---A shortcut when the iPhone does not have an antenna and the airplane is turned on and off until the antenna comes
